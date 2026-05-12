@@ -1,4 +1,4 @@
-#  
+#  updated Script for anime card collection is the best anime card collection Script, featuring auto-upgrade and no cooldown. Safe and powerful for all
 
 
 
